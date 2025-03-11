@@ -81,10 +81,11 @@ ________________________________________
 
 ## Contact
 ________________________________________
-•	LinkedIn:Ebenezer Asiedu
+•	LinkedIn: www.linkedin.com/in/rosemary-akarimanga
 
 
-•	Email: easiedu362@gmail.com
+
+•	Email: roseakarimanga@gmail.com
 ________________________________________
 
 ## Contributing
